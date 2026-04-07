@@ -22,3 +22,5 @@ Professioneel Profiel
 
 **_Door het inleveren van dit product (werkstuk, verslag etc.) verklaar ik dat het product eigen werk is en dat het vrij is van fraude zoals in het onderwijs- en examenreglement artikel 6.17 lid 4 sub f, g en h is beschreven._**
 
+
+[Wie ben ik](/wiebenik)
