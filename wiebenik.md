@@ -1,3 +1,9 @@
+---
+layout: page
+title: Wie ben ik? - Janneke
+permalink: /wiebenik
+---
+
 ## Wie ben ik? - Janneke
 
 ### Janneke als persoon
