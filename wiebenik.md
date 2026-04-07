@@ -30,15 +30,15 @@ Na mijn laatste lesbezoek door mijn teamleider kreeg ik te horen dat ik erg goed
 Verder wil ik dat mijn leerlingen zich gehoord en gezien voelen, ik heb dit als jongere zelf niet ervaren en weet daarom uit ervaring hoe belangrijk dit is.
 
 De volgende waarden zijn kenmerkend voor mij als professional voor de klas:  
-1\. Betrokkenheid: ik geef om mijn leerlingen en hun ontwikkeling. Ik probeer eerst het kind te zien en dan de leerling.  
-2\. Verantwoordelijkheid: ik neem verantwoordelijkheid voor het leerproces, de veiligheid en het welzijn van mijn leerlingen.  
-3\. Respect: ik behandel iedereen gelijkwaardig, ongeacht achtergrond, niveau of het gedrag dat leerlingen vertonen.  
-4\. Professionaliteit: ik blijf bezig met mezelf ontwikkelen, daarnaast reflecteer ik op mijn handelen en werk volgens afspraken.  
-5\. Integriteit: ik ben eerlijk, betrouwbaar en handel volgens duidelijke normen en waarden.  
-6\. Inclusiviteit: ik zorg ervoor dat alle leerlingen zich welkom en gezien voelen in de klas.  
-7\. Reflectie: ik denk na over mijn handelen, ook sta ik open voor feedback en verbetering.  
-8\. Empathie: ik probeer leerlingen echt te begrijpen en me in te leven in hun situatie.  
-9\. Rechtvaardigheid: ik handel eerlijk en consequent, ik geef iedereen gelijke kansen.  
-10.Inspiratie: ik motiveer en stimuleer mijn leerlingen om het beste uit henzelf te halen.
+1. Betrokkenheid: ik geef om mijn leerlingen en hun ontwikkeling. Ik probeer eerst het kind te zien en dan de leerling.  
+2. Verantwoordelijkheid: ik neem verantwoordelijkheid voor het leerproces, de veiligheid en het welzijn van mijn leerlingen.  
+3. Respect: ik behandel iedereen gelijkwaardig, ongeacht achtergrond, niveau of het gedrag dat leerlingen vertonen.  
+4. Professionaliteit: ik blijf bezig met mezelf ontwikkelen, daarnaast reflecteer ik op mijn handelen en werk volgens afspraken.  
+5. Integriteit: ik ben eerlijk, betrouwbaar en handel volgens duidelijke normen en waarden.  
+6. Inclusiviteit: ik zorg ervoor dat alle leerlingen zich welkom en gezien voelen in de klas.  
+7. Reflectie: ik denk na over mijn handelen, ook sta ik open voor feedback en verbetering.  
+8. Empathie: ik probeer leerlingen echt te begrijpen en me in te leven in hun situatie.  
+9. Rechtvaardigheid: ik handel eerlijk en consequent, ik geef iedereen gelijke kansen.  
+10. Inspiratie: ik motiveer en stimuleer mijn leerlingen om het beste uit henzelf te halen.
 
 Mijn valkuil binnen het werkveld is dat ik enorm betrokken ben bij mij leerlingen, maar ook bij collega's, ik zet mezelf makkelijk opzij om er voor de ander te zijn. Daar is op zich niks mis mee, maar ik vind het regelmatig erg moeilijk om nee te zeggen. Verder ben ik regelmatig in het weekend of op vrije momenten met mijn werk bezig. Ik probeer een goede balans te vinden, in 2022 heb ik namelijk een burn-out gehad, daar wil ik niet nog een keer terecht komen. Ook wil ik er voor mijn eigen gezin en mezelf zijn, dat vraagt om schipperen. Wat ik de afgelopen jaren geleerd heb is dat ik nu probeer niet meteen ja te zeggen, maar dat ik aangeef eerst over de vraag te willen nadenken. Dat geeft mij ruimte om te onderzoeken of ik ja of nee ga zeggen op de vraag.
