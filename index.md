@@ -6,8 +6,8 @@ permalink: /
 
 Professioneel Profiel
 
-| Voor- en (meisjes)Achternaam student | Janneke Koelewijn  |
 | ------------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| Voor- en (meisjes)Achternaam student | Janneke Koelewijn  |
 | Studentnummer                                                                         | 4756010                                                                                                                                                                           |
 | NHL Stenden e-mailadres                                                               | <Janneke.koelewijn1@student.nhlstenden.com>                                                                                                                                       |
 | Opleiding                                                                             | Leraar Engels                                                                                                                                                                     |
