@@ -4,9 +4,9 @@ title: Wie ben ik? - Janneke
 permalink: /wiebenik
 ---
 
-## Wie ben ik? - Janneke
+# Wie ben ik? - Janneke
 
-### Janneke als persoon
+## Janneke als persoon
 
 Ik ben Janneke (Buiten-) Koelewijn, 40 jaar, ik woon in Zwolle samen met mijn man (Jan Willem) en onze zoon (Mees 13 jaar) en onze dochter Marit (10 jaar). Op de NHL Stenden ben ik Janneke Koelewijn, in het dagelijkse leven voel ik me echt Janneke Buiten. Ik ben blij met mijn man en 2 kinderen, samen vormen wij een hecht gezin.
 
@@ -19,7 +19,7 @@ In september 2019 ben ik begonnen op de NHL Stenden aan de opleiding tot docent 
 
 De opleiding afronden was nog helemaal niet voor mij aan de orde. Maar in juni 2020 werd ik na gesolliciteerd te hebben aangenomen op een middelbare school. Deze zag ik totaal niet aankomen, ik had niet gedacht dat ze iemand zouden aannemen die nog maar één jaar de opleiding tot docent Engels had gevolgd. Opnieuw maakte ik toen een sprong in het diepe, dit keer om de baan aan te nemen en te gaan werken op het Zone college in Zwolle aan vmbo- leerlingen. Tot op de dag van vandaag heb ik daar geen spijt van. Maar, nu is het inmiddels wel tijd om de opleiding af te ronden. Ik voel me helemaal op mijn plek op het vmbo, daarom is dit mijn afstudeerrichting geworden.
 
-### 1.2 Janneke als onderwijsprofessional
+## 1.2 Janneke als onderwijsprofessional
 
 Toen ik werd aangenomen op het Zone college zei mijn toenmalige teamleider: "liever bevlogen dan bevoegd". En ik denk dat dat nog steeds tekenend is voor mij. Als docent ben ik bevlogen, ik ga echt voor mijn leerlingen, ik ben flexibel, empathisch. Samenwerking met mijn leerlingen is waar ik enthousiast van word, samen verder leren, want ik ben van mening dat dat het beste werkt. Verder vind ik het enorm belangrijk dat ik een band opbouw met al mijn leerlingen. De eerste weken na de zomervakantie als ik nieuwe klassen krijg ben ik daar enorm druk mee. Het is in mijn ogen een must om een band op te bouwen met je leerlingen. Ik merk binnen mijn werk dat leerlingen niet voor zichzelf werken, maar dat ze dat echt voor de docent doen. Verder geloof ik dat je je alleen optimaal kunt ontwikkelen als je je prettig voelt. Daarnaast probeer ik te zorgen voor plezier in mijn lessen, lastige momenten met leerlingen probeer ik luchtiger te maken door middel van humor. Ook zorg ik ervoor dat ik toegankelijk ben voor zowel leerlingen, collega's als voor ouders.
 
